@@ -1,5 +1,5 @@
 # reading-note
-![image about growth mindest](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.openrecruitmentlimited.co.uk%2Ffixed-mindset-v-growth-mindset&psig=AOvVaw06gnkE7qt5Itjd7oQ4R5mZ&ust=1621972759706000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOCUi8WN4_ACFQAAAAAdAAAAABAP)
+![image about growth mindest](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSkZkESwiy1Qv_9KejTIAfBjVRSq1xDS-aJwA&usqp=CAU)
 # growth mindest :
 the growth midest mean you can developing your skills throw traning and hard work and We can gain new skills through training
 ## remindes how to keep yourself in a growth mindset :
