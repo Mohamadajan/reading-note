@@ -5,6 +5,6 @@ what we do in git ? we can track history and work together on coding project and
 why git ? 
 
 - free
--open source
--super fast
--scalable
+- open source
+- super fast
+- scalable
