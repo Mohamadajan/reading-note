@@ -1,6 +1,6 @@
 I am mohamad ajan from syria i live in amman/jordan since 2012 have deploma degree with tele comunication and computer network now i stard learn coding in ASAC and i am very exciting about this when i have free time i like play football and watch it , do volunteer work , watch movies
 * This my github portfolio link :
-[My profile](https://github.com/Mohamadajan)
+[My github protfolio](https://github.com/Mohamadajan)
 
 # growth mindest :
 the growth midest mean you can developing your skills throw traning and hard work and We can gain new skills through training
